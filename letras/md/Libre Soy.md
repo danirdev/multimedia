@@ -1,0 +1,70 @@
+---
+title: 'Libre Soy'
+author: 'Barak'
+---
+
+Salvo soy
+Mi alegría está en tu amor
+Hoy te canto porque tu
+Me hiciste libre en una cruz
+
+Te exaltare
+Día y noche adorare
+Porque libre soy en ti
+Eres todo mi vivir
+
+Las cadenas fueron rotas
+En su nombre yo he vencido
+¡Libre soy, libre soy!
+
+Me hiciste libre y hoy puedo danzar
+Me hiciste libre por tu gran amor
+Me hiciste libre y hoy puedo gritar que
+¡Libre soy!
+
+Salvo soy
+Mi alegría está en tu amor
+Hoy te canto porque tu
+Me hiciste libre en una cruz
+
+Exaltare
+Día y noche adorare
+Porque libre soy en ti
+Eres todo mi vivir
+Las cadenas fueron rotas
+En su nombre yo he vencido
+¡Libre soy, libre soy!
+
+Me hiciste libre y hoy puedo danzar
+Me hiciste libre por tu gran amor
+Me hiciste libre y hoy puedo gritar que
+¡Libre soy!
+
+Me hiciste libre y hoy puedo danzar
+Me hiciste libre por tu gran amor
+Me hiciste libre y hoy puedo gritar que
+¡Libre soy!
+
+¡Libre soy!(¡Libre soy!)
+¡Libre soy!(¡Libre soy!)
+¡Libre soy!(¡Libre soy!)
+¡Libre soy!(¡Libre soy!)
+
+Lip, lip libre soy (Lip, lip libre soy)
+Lilililibre soy, ( Lilililibre soy)
+Lip, lip libre soy (Lip, lip libre soy)
+Lilililibre soy, ( Lilililibre soy)
+
+Las cadenas fueron rotas
+En su nombre yo he vencido
+¡Libre soy, libre soy!
+
+Me hiciste libre y hoy puedo danzar
+Me hiciste libre por tu gran amor
+Me hiciste libre y hoy puedo gritar que
+¡Libre soy!
+
+Me hiciste libre y hoy puedo danzar
+Me hiciste libre por tu gran amor
+Me hiciste libre y hoy puedo gritar que
+¡Libre soy!
